@@ -227,4 +227,4 @@ Age of Empires 3 is available as a complete free version with all features and u
 Download Age of Empires 3 now and embark on your journey to conquer the New World!
 
 ---
-**Last updated:** 2026-10-08 21:53:07 UTC
+**Last updated:** 2026-10-09 01:51:30 UTC
